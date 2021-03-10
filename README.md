@@ -1,0 +1,1 @@
+ YAYA: a small electric appliance company in Jiangsu Province, China, which produces electric blankets.
